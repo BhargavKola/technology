@@ -1,1 +1,1 @@
-# insync
+Technology and you
